@@ -52,4 +52,4 @@ During the hackathon, we aim to:
 ---
 
 **Contact:**  
-[Melanie Goupil] – [melanie.goupil@yahoo.fr] – [Melanie Goupil]
+[Melanie Goupil] – [melanie.goupil@yahoo.fr] – https://www.linkedin.com/in/m%C3%A9lanie-goupil-320a7b1b9 
